@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning thing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me pls dont
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: IM ACTUALLY A POTATO :O
 
 <!---
